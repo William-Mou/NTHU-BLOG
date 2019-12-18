@@ -3,7 +3,7 @@ title: About Tsing Hua
 date: 2019-12-18 10:41:35
 ---
 
-# [Encounter With Tsing Hua](https://drive.google.com/open?id=1H3GP-eQi2kOC56d3AClnePgFOgZY0XSs&usp=sharing)
+# [Encounter with Tsing Hua](https://drive.google.com/open?id=1H3GP-eQi2kOC56d3AClnePgFOgZY0XSs&usp=sharing)
 
 ## University Name
 
